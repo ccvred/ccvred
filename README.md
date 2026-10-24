@@ -1,8 +1,8 @@
 <div align="center">
 
-# Cure⠀⠀|⠀⠀They⠀⠀|⠀⠀Werewolf⠀⠀|⠀⠀Multifandom
+ # Cure⠀⠀|⠀⠀They⠀⠀|⠀⠀Werewolf⠀⠀|⠀⠀Multifandom
 
-<img width="1100" height="40" alt="Image" src="https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b" />
+<img width="1100" height="40" alt="683233795-c22b7ab4-c358-4ff0-8277-72d387070a4b" src="https://github.com/user-attachments/assets/39af0ec8-055d-4576-ab87-866959265ea1" />
 <div align="center">
  
 <div style="border: 1px solid #ccc; padding: 100px; border-radius: 10px; background-color: #f9f9f9;">
@@ -32,10 +32,11 @@ please⠀bmf⠀I⠀am⠀lonely⠀and⠀I⠀swear⠀i⠀am⠀nice
 </div>
 
  <br><br>
+ <div align="center">
   ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 <br><br>
 
-<img width="1100" height="40" alt="Image" src="https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b" />
+[<img width="1100" height="40" alt="Image" src="https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b" />](https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b)
 <br><br>
 
 ## Ponytown Info
@@ -55,7 +56,9 @@ please⠀bmf⠀I⠀am⠀lonely⠀and⠀I⠀swear⠀i⠀am⠀nice
 <br><br>
 
 <div align="center">
-<img width="1708" height="960" alt="Image" src="https://github.com/user-attachments/assets/d2859141-a25c-46a8-b284-5a19ed99b3a9" />
+<img width="1708" height="960" alt="tumblr_00d8d8c589f551682c6984d73c6ce954_89238a5b_2048" src="https://github.com/user-attachments/assets/5bd35385-1ec1-428d-b45b-5599ba1a95d7" />
+
+
 <br><br>
   ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 <br><br>   
@@ -69,4 +72,4 @@ please⠀bmf⠀I⠀am⠀lonely⠀and⠀I⠀swear⠀i⠀am⠀nice
 
 <br><br>
 
-<img width="1100" height="40" alt="Image" src="https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b" />
+<img width="1100" height="40" alt="683233795-c22b7ab4-c358-4ff0-8277-72d387070a4b" src="https://github.com/user-attachments/assets/39af0ec8-055d-4576-ab87-866959265ea1" />
