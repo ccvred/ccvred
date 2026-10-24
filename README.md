@@ -36,7 +36,8 @@ please⠀bmf⠀I⠀am⠀lonely⠀and⠀I⠀swear⠀i⠀am⠀nice
   ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 <br><br>
 
-[<img width="1100" height="40" alt="Image" src="https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b" />](https://github.com/user-attachments/assets/c22b7ab4-c358-4ff0-8277-72d387070a4b)
+<img width="1100" height="40" alt="683233795-c22b7ab4-c358-4ff0-8277-72d387070a4b" src="https://github.com/user-attachments/assets/39af0ec8-055d-4576-ab87-866959265ea1" />
+
 <br><br>
 
 ## Ponytown Info
