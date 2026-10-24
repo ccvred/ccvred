@@ -6,7 +6,7 @@
 
 
 <div style="border: 1px solid #ccc; padding: 100px; border-radius: 10px; background-color: #f9f9f9;">
-  hello! my name cure, I am 17, and wolfkin! I am  happily taken and I am looking for more friends!! please bmf I am lonely ₊˚⊹ 𐂯 .
+  hello! my name cure, I am 17, and wolfkin! I am  happily taken and I am looking for more friends/mooties!! please bmf I am lonely ₊˚⊹ 𐂯 .
 </div>
 
  <br><br>
